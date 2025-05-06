@@ -20,3 +20,10 @@
 
 🧬 From 🧠 → 💻 → 🌍
 
+👾 OZX DevLabs | Code. Chaos. Consciousness.  
+🎯 NPM | Composer | Symfony | Laravel | Materialize  
+🧠 Built for paradox: new dev, ancient soul  
+🔐 Secrets decrypted, mysteries coded  
+🚀 Empowered by Jake | Backed by Doni | Manifested by Secret  
+
+
